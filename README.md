@@ -15,7 +15,7 @@
 
 /* Связь */
 
-Discord: TrafalgarLow#1036;
+Discord: 𝕀𝕟𝕥𝕖𝕣𝕟𝕒𝕝#1036;
 
 VK: https://vk.com/sinitskiy2k19;
 
